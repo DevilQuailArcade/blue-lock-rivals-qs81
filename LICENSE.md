@@ -1,4 +1,4 @@
-
+Experience blue lock rivals like never before with blue lock rivals new Scripts, the #1 Script. Includes auto-heal and invisibility for unbeatable
 
 
 
